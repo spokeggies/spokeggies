@@ -2,9 +2,8 @@ banner wip
 ##   ݂ ㅤㅤinfosㅤㅤ ۫
 ꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
-꒱꒱  c+h is always encouraged+do freely, only when i have it on my name
+꒱꒱  c+h is always encouraged+do freely, only when i have it on my name. friends are exluded in this
 
-꒱꒱  ifff ouuur looveee is tragedy then whyy ru my remedity
+꒱꒱  spoke is my favourite oat, if it isn't obvious enough
 
 ( ˶°ㅁ°) !! ㅤㅤ  **_Mostly offtab/busy_**
-ㅤㅤㅤㅤ check my strawpage(semi wip) for more infos
