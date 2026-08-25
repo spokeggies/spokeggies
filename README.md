@@ -1,4 +1,5 @@
-banner wip
+
+![](https://files.catbox.moe/7cmjep.png)
 ##   ݂ ㅤㅤinfosㅤㅤ ۫
 ꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
