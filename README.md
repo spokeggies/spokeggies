@@ -1,5 +1,5 @@
 
-![](https://files.catbox.moe/qx3g9x.png)
+![](https://files.catbox.moe/r8j46n.png)
 ##   ݂ ㅤㅤinfosㅤㅤ ۫
 ꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
