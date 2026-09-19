@@ -6,9 +6,7 @@
  　　　　　　₊　‹ or it will destroy me</font>
 
 
-<a href="">
-  <img src="https://files.catbox.moe/jwcrfu.png"<src="https://sodacan.atabook.org/" width="50%" />
-</a>
+wip
   
    INFO
    
