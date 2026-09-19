@@ -1,10 +1,14 @@
 <a href="">
-  <img src="https://files.catbox.moe/gep8vw.png" width="100%" />
+  <img src="https://files.catbox.moe/fa5l2g.png" width="100%" />
 </a>
 
 <font color="#825548">𝜗 i know i must destroy it
  　　　　　　₊　‹ or it will destroy me</font>
 
+
+<a href="">
+  <img src="https://files.catbox.moe/jwcrfu.png" width="50%" />
+</a>
   
    INFO
    
