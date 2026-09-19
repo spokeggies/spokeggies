@@ -2,8 +2,12 @@
   <img src="https://files.catbox.moe/gep8vw.png" width="100%" />
 </a>
 
-  ݂ ㅤㅤinfosㅤㅤ ۫
+<font color="#825548">𝜗 i know i must destroy it
+ 　　　　　　₊　‹ or it will destroy me</font>
 
+  
+   INFO
+   
 ꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
 ꒱꒱  c+h is always encouraged+do freely, only when i have it on my name. friends are exluded in this
