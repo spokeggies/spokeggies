@@ -10,7 +10,7 @@ wip
   
    INFO
 
-꒱꒱  I'm able to do a pt skin commisions for t2+ supporter or 500 robux. preferably contact me on discord @sp6kee just incase i miss people whispers
+꒱꒱  I'm able to do a pt skin commisions👀 please whisper me or preferably contact me on discord (@sp6kee)
    
 ꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
 
