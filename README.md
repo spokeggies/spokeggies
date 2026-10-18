@@ -25,7 +25,7 @@ IMWORKING ON THISIS
 
    ㅤㅤㅤㅤㅤ p**l**e**a**se **g**i**f**t **m**e **sp**oke s**k**in **o**r s**k**in t**r**ade **wi**th m**e** o**n** m**y** di**sc**ord! ( @spokeggies ) d**o**n't b**e** s**ca**red **t**o **d**m m**e** r**i**ght **a**way
    
-   ㅤㅤㅤㅤㅤㅤㅤㅤ🌈ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ🌈ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
    
    .     ໒     <3ㅤㅤㅤㅤ**w**2**i** , I**a**m **v**e**r**y **o**f**t**en o**ff**tab/**b**usy
 
