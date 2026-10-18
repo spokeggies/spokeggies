@@ -4,6 +4,9 @@
 
 <font color="#825548">𝜗 why is it that some were given
  　　　　　　₊　‹ the role of villain?</font>
+       
+      
+  ㅤㅤㅤlink ㅤㅤㅤㅤ linkㅤㅤㅤㅤㅤㅤlink
 
   <a href="">
   <img src="https://files.catbox.moe/xtnh0k.png" width="100%" />
@@ -12,17 +15,21 @@
 
 IMWORKING ON THISIS
   
-   INFO
+### ྀ   .  ㅤㅤ   ◌  𝅄  an alliance, between 2 friends ㅤㅤㅤ   .   
 
-꒱꒱  I can do pt skin commisions whisper me or contact me on discord (@spokefever) thanks
+  <a href="">
+  <img src="https://files.catbox.moe/qfq96u.gif" width="100%" />
+</a>
+
+   .     ໒     <3     c**h** al**w**ays en**c**+fre**e**ly o**n**ly w**h**en **i**t**s** **o**n **m**y n**a**me! fr**i**ends **r** e**x**luded 
+
+   ㅤㅤㅤㅤㅤ p**l**e**a**se **g**i**f**t **m**e **sp**oke s**k**in **o**r s**k**in t**r**ade **wi**th m**e** o**n** m**y** di**sc**ord! ( @spokeggies ) d**o**n't b**e** s**ca**red **t**o **d**m m**e** r**i**ght **a**way
    
-꒱꒱  do not copy any of my work/skins, **ask** b4 taking insp
+   ㅤㅤㅤㅤㅤㅤㅤㅤ🌈ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+   
+   .     ໒     <3ㅤㅤㅤㅤ**w**2**i** , I**a**m **v**e**r**y **o**f**t**en o**ff**tab/**b**usy
 
-꒱꒱  c+h is always encouraged+do freely, only when i have it on my name. friends are exluded in this
-
-꒱꒱  spoke is my favourite oat, if it isn't obvious enough
-
-( ˶°ㅁ°) !! ㅤㅤ  **_Mostly offtab/busy_**
+   ㅤㅤㅤㅤㅤㅤ**S**I**G**N **M**Y **A**T**A** !! <3
 
   <a href="">
   <img src="https://files.catbox.moe/qfq96u.gif" width="100%" />
